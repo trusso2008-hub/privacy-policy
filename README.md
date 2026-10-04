@@ -1,8 +1,8 @@
-Privacy Policy – SpeakGo
+Privacy Policy – SpeakGo Off
 
 Ultimo aggiornamento: 1 settembre 2026
 
-SpeakGo è un’applicazione per la traduzione vocale e testuale tra diverse lingue.
+SpeakGo Off è un’applicazione per la traduzione vocale e testuale tra diverse lingue.
 
 La presente Privacy Policy descrive come vengono gestiti i dati degli utenti durante l’utilizzo dell’app.
 
